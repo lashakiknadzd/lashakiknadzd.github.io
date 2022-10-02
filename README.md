@@ -1,1 +1,0 @@
-# lashakiknadzd.github.io
